@@ -1,0 +1,1 @@
+Talon Hand 3.0 by profbink on Thingiverse: https://www.thingiverse.com/thing:229620
